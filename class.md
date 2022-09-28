@@ -1,1 +1,1 @@
-Stella Mwaniki
+Stella North Carolina
